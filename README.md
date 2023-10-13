@@ -38,7 +38,7 @@ I have discord nitro
 
 
 
-Stop scrolling
+
 
 
 
@@ -96,7 +96,7 @@ dogs for sale bellow
 
 
 
-so close
+
 
 
 
