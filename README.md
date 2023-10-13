@@ -1,0 +1,116 @@
+- 👋 Hi, I’m @N-o-v-a-a
+- 👀 I’m interested in Gorilla tag 
+- 🌱 I’m currently learning c# coding
+- 💞️ I’m looking to collaborate on Some LEGAL MODS for gorilla tag
+- 📫 How to reach me I'll be making a youtube channel soon :)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+I have discord nitro 
+
+
+
+
+
+
+
+
+
+
+Stop scrolling
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+dogs for sale bellow
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+so close
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+https://blueskypuppies.com/puppies dogs for sale
